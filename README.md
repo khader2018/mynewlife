@@ -1,2 +1,1 @@
-# mynewlife
-new
+https://bit.ly/2HYHKkB
